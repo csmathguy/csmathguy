@@ -1,4 +1,4 @@
-## How to work with Zachary Hayes (csmathguy)
+## How to work with Zach Hayes (csmathguy)
  
 ### Values:
 **Lifelong Learner** "There is no end to education. It is not that you read a book, pass an examination, and finish with education. The whole of life, from the moment you are born to the moment you die, is a process of learning." -Jiddu Krishnamurti
