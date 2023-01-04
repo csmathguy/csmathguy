@@ -6,7 +6,7 @@
  * Mindfulness - "Our life is shaped by our mind, for we become what we think." Buddha
 
 ### Availability:
-I'm generally available between 7 AM - 7 PM PST in some capacity.
+I'm generally available between 7 AM - 5 PM EST.
  
 ### Topics that interest me:
  * Artifical Intelligence 
