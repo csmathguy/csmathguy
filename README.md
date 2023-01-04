@@ -14,6 +14,7 @@ I'm generally available between 7 AM - 5 PM EST.
  * Brain-Computer Interface
  * Quantum Computers
  * Health and Wellness
+ * Optimizing Liberty & Freedom
  * Video Games
  * Movies and TV Shows
 
